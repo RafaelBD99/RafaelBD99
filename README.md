@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with learning stuff
 - 💬 Ask me about ...
 - 📫 How to reach me: you can reach me here 
-- ⚡ Fun fact: idk find out
+- ⚡ Fun fact: idk find out :)
 -->
